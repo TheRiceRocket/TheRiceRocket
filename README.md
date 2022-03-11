@@ -1,5 +1,5 @@
 - Hey, I'm TheRiceRocket
-- This is mostly for school, but I can't wait to use this for game design 
+- Some mostly school work until I get that profile set up.
 - I’m currently learning CIT
 - 📫 How to reach me spartanfox9975@hotmail.com
 
